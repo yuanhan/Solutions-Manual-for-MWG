@@ -1,0 +1,1 @@
+Solutions Manual for MWG.
